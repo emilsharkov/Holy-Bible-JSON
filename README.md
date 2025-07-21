@@ -1,6 +1,6 @@
 # Holy-Bible-JSON
 ## Introduction
-Emil, called to be a servant of Christ Jesus by the will of God, and our brothers Cliffe Knechtle and Myles,
+Emil, called to be a servant of Christ Jesus by the will of God,
 
 To the church of God wherever you may be, to those sanctified in Christ Jesus and called to be his holy people, together with all those everywhere who call on the name of our Lord Jesus Christ--their Lord and ours:
 
